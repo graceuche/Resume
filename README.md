@@ -1,7 +1,8 @@
 ## Grace Uche
 
+## [Northeastern University](https://github.com/graceuche/Resume)
 
-# Aspiring Data Analytics 
+## Aspiring Data Analytics 
 
 -Ethusiatic Learner
 -Dependable
