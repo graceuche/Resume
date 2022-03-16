@@ -11,4 +11,6 @@
 - Good Collaborator
 - Good Communicator
 - Registered Health Information Administrator
+- Masters in Business Administration
+- Instrutor/Trainer
 
